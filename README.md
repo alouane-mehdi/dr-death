@@ -1,4 +1,4 @@
-#SOMMAIRE
+# SOMMAIRE
 - POWER BI
 - DR SHIPMAN
 - ANALYSE
@@ -6,7 +6,7 @@
 
 
 
-#POWER BI 
+# POWER BI 
 
 
 Power BI est une plateforme d'analyse de données et de business intelligence développée par Microsoft. C'est un outil puissant qui permet aux utilisateurs de visualiser et d'analyser leurs données de manière intuitive, ainsi que de partager ces analyses avec d'autres collaborateurs.
