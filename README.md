@@ -75,7 +75,7 @@ L'affaire Shipman a profondément choqué le Royaume-Uni et a entraîné des cha
 # Conclusion 
 
 Le docteur Shipman était un tueur en série qui profitait de la naiveté des personnes agées ; cette naiveté pouvant être créer par la solitude de ces personnes , pour pouvoir les tuer le plus souvent dans leur domicile avec leur pleine confiance .
-Il avait une méthode discrète qui pouvait passer sous les radars , en effet on a moins de doute sur une personne qui meurt assez agée qu'une personne jeune , surtout si elle est seule et souvent chez elle . Il fut néanmoins condamné vers la fin de sa vie , seulement reconnu coupable sur 5 victimes (sur 215 possibles) ; il regrettera peut être ses actes en prison car après avoir été condamné de la peine maximale , il a préféré se donner la mort dans sa cellule en 2004 .
+Il avait une méthode discrète qui pouvait passer sous les radars , en effet on a moins de doute sur une personne qui meurt assez agée qu'une personne jeune , surtout si elle est seule et souvent chez elle . Il fut néanmoins condamné vers la fin de sa vie , seulement reconnu coupable pour 15 victimes (sur 215 possibles) ; il regrettera peut être ses actes en prison car après avoir été condamné à la peine maximale , il a préféré se donner la mort dans sa cellule en 2004 .
 
 
 
